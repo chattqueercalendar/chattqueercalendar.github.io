@@ -1,2 +1,2 @@
-link to calendar
-https://chattqueercalendar.github.io/
+🌈link to calendar
+https://chattqueercalendar.github.io/🌈
